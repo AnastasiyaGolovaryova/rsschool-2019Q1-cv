@@ -26,5 +26,5 @@ expert team of developers. Thereby helping to drive my career progression to mor
 
 ### English level
 
-* English (В2) – Upper-Intermediate;
-* Polish (A1) - Beginner/Elementary.  
+* **English** – Upper-Intermediate(В2);
+* **Polish**  - Beginner/Elementary(A1).  
