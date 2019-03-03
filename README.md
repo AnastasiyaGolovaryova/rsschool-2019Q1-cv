@@ -1,1 +1,1 @@
-https://github.com/AnastasiyaGolovaryova/rsschool-2019Q1-cv/cv
+https://anastasiyagolovaryova.github.io/rsschool-2019Q1-cv/cv
