@@ -24,7 +24,7 @@ expert team of developers. Thereby helping to drive my career progression to mor
 * Bachelor of Economics, Belarusian State Economic University,Minsk, 2015-2019
 * Courses of The Rolling Scopes School, 2019 
 
-### English level
+### Languages:
 
 * **English** – Upper-Intermediate(В2);
 * **Polish**  - Beginner/Elementary(A1).  
